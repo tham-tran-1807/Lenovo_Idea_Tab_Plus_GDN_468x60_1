@@ -1,0 +1,2 @@
+# Lenovo_Idea_Tab_Plus_GDN_468x60_1
+Lenovo_Idea_Tab_Plus_GDN_468x60_1
